@@ -34,4 +34,4 @@ And it has been lonely too. That is the worst of the pain. Feeling alone in this
 
 I know now, that nobody is like me. But there are lots out there who share similar feelings to me.
 
-And that every human, whatever their neurologically wired disposition, are capable of these feelings too. They yearn to be *free* of their wiring. To make choices and live their own lives. To live joyfully and honestly and cooperatively. This is the gift I am to share with the world.
+And that every human, whatever their neurologically wired disposition, are capable of these feelings too. They yearn to be *free* of their wiring. To make choices and live their own lives. To live joyfully and honestly and cooperatively. To help create an open, accepting and just world. This is the gift I am to share with the world.
